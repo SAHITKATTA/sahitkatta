@@ -7,7 +7,7 @@
 - **Name:** Sahit Katta
 - **Coding Odyssey:** Sailing through the code oceans for over 3 years 🌊
 - **Passions:**
-  - **Tech Wizardry:** I turn overthinking into code! ☕👨‍💻
+  - **Tech Wizardry:** I turn overthinking into code! 🧠👨‍💻
   - **Beats and Bytes:** Aspiring Music Producer crafting sonic landscapes 🎧🎶
   - **Speed Junkie:** Formula 1 aficionado, living life in the fast lane 🏎️💨
   - **Einstein Enthusiast:** In love with Math and Physics, I find beauty in equations and the mysteries of the universe 📚🌌
